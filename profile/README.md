@@ -1,1 +1,1 @@
-*We are shut down to legal actions
+**We are shut down to legal actions
